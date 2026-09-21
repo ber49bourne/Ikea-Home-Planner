@@ -217,4 +217,4 @@ IKEA Home Planner is available as a complete free version, with all features and
 Start your home transformation today with the **official IKEA Home Planner free download**!
 
 ---
-**Last updated:** 2026-09-20 22:05:15 UTC
+**Last updated:** 2026-09-21 00:37:47 UTC
